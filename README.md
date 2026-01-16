@@ -34,6 +34,7 @@ The session pushed me to think more seriously about:
 ![1767190069953](https://github.com/user-attachments/assets/9e895879-5eef-4d9b-8349-b52d1ab67822)
 ![1767190070450](https://github.com/user-attachments/assets/3cb2776e-d397-491f-a9b5-4ec014c89f2e)
 ![1767190069863](https://github.com/user-attachments/assets/5d917a08-b6a4-4ecf-8a66-d68629c268d9)
+<img width="1587" height="2245" alt="Blue and Red Modern Bold Minimalist Impact Of Artificial Intelligence Infographic Poster" src="https://github.com/user-attachments/assets/b23d3b3d-557a-40b4-b2d7-f162cd468fe6" />
 
 ## 
 Thank you to the organizers for the opportunity — the talk gave us useful guidance on technical and career directions in analytics and industrial IT.  
